@@ -24,8 +24,7 @@
 - Character Differences
 
 ## Quotes
-> *"I can't see anything that I don't like about you."*
-> - Joel Barish
+> *"I can't see anything that I don't like about you."* - Joel Barish
 
 ## External Links
 - [IMDb Page](https://www.imdb.com/title/tt0338013/)  
